@@ -16,3 +16,8 @@
     Canon G3800 Color
     
     
+##Video:
+    https://www.youtube.com/watch?v=hheCXtTZfLs
+    
+    https://www.bilibili.com/video/BV19dVZzTEQ5/
+    
